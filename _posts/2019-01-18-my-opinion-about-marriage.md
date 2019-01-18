@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sailing Praises
+title: My Opinion About Marriage
 ---
 
 > 本文节选自一位男生写于女生的关于婚姻与生活观的讨论邮件。
